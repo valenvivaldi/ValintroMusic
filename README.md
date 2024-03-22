@@ -207,3 +207,45 @@ Con su mochila de canciones, por el mundo él navega.
 Dejando huellas sonoras, en cada rincón que deja,
 "El Vieja", el programador, que a todos nos enseña:
 La música es el puente, que a nuestras almas enhebra.
+
+
+# Faka, Click-Clack
+
+[Intro]
+En el reino de los bits, Faka brilla con fervor,
+Con teclas y con hierro, forja su propio honor.
+
+[Chorus]
+"Click-clack", "Click-clack", 
+
+"Click-clack", Faka entrena, su temple sin igual,
+En el amor y el código, siempre en lo ideal.
+"Click-clack",  corazones, su poder es total,
+Líder en códigos, pasiones despierta, es genial.
+
+[Verse]
+ Fakir, Fakir, el mas grande, el mas fuerte
+Martilla su Ratatype, con hierro caliente
+
+[Chorus]
+"Click-clack", "Click-clack", 
+"Click-clack", "Click-clack", 
+
+[Verse]
+ Fakir, Fakir, el mas grande, el mas fuerte
+Nadie puede, nadie puede, romper su temple
+
+[Chorus]
+"Click-clack", "Click-clack", 
+
+"Click-clack", Faka entrena, su temple sin igual,
+En el amor y el código, siempre en lo ideal.
+"Click-clack",  corazones, su poder es total,
+Líder en códigos, pasiones despierta, es genial.
+
+[Outro]
+El faka buscando un nuevo rival,
+Faka buscando a quien destrozas,
+
+Cuidate del faka, que por ti ya vendraaaaaaaa
+
