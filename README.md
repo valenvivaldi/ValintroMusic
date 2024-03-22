@@ -57,7 +57,7 @@ El Teka en la casa, no puedes parar
 
 # Montetti, El hombre encantador
 
-[Verse]
+[Intro]
 Montetti es su nombre, y su mirada conquistadora
 Las cubanas caen rendidas a su lado (oh, sí)
 Un corazón tras otro él ha roto
@@ -69,11 +69,23 @@ Las cubanas caen a sus pies, sin control (sin control)
 Rompe corazones, es su especialidad (especialidad)
 El hombre encantador, con su seducción sin igual
 
+[Verse]
 Habla de que deja muchas mujeres en Pucara conquistadas y muchas mujeres en Rio Cuarto, y que se va turnando
 
 [Chorus]
 Nadie sabe si Montetti sentará cabeza
 Por todos lados busca, pero nadie sabe dónde
+Donde estará, donde estará
+
+Donde estará, donde estará
+
+[Guitar Solo]
+
+[Chorus]
+Nadie sabe si Montetti sentará cabeza
+Por todos lados busca, pero nadie sabe dónde
+Donde estará, donde estará
+
 Donde estará, donde estará
 
 [Outro]
