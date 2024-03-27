@@ -261,3 +261,77 @@ Faka buscando a quien destrozas,
 
 Cuidate del faka, que por ti ya vendraaaaaaaa
 
+
+
+
+# Roman, el jesus del metal
+[Intro]
+En las olas de código, bajo la aurora boreal,
+Navega Roman, en su drakkar digital.
+Con teclas como remos, en mares de información,
+Surca los bits, en búsqueda de la canción.
+
+[Verse]
+Con su barba de sabiduría, y su cabello al viento,
+Roman escribe su destino, sin temor al tiempo.
+Un vikingo en el teclado, un guerrero en la red,
+Con cada línea de código, un nuevo mundo nace de él.
+
+[Chorus]
+Roman, el vikingo del metal, en su barco va,
+El "Jesús del metal", su leyenda jamás morirá.
+En la tormenta digital, su guitarra es su espada,
+Con cada acorde de poder, su historia es cantada.
+
+[Guitar Solo]
+
+
+
+[Chorus]
+Roman desata su furia, un rugido en la noche eterna.
+
+
+"¡Por los dioses del metal!", exclama sin cesar,
+"QUE JUEGO MAL HECHOOOO!", su ira no puede ocultaaaaaaaaar.
+
+[Chorus]
+Roman, el vikingo del metal, en su barco va,
+El "Jesús del metal", su leyenda jamás morirá.
+En la tormenta digital, su guitarra es su espada,
+Con cada acorde de poder, su historia es cantada.
+
+[Outro]
+
+Román!
+Román!
+Román!
+Rommáaaaaaaaaan!
+
+Que juego mal hecho jugaráaaaaa????
+
+
+# Valeria, que te mejores
+[Intro]
+Querida Valeria!, escucha este canto,
+que lleva un deseo profundo,
+que la salud te abrace en este rato,
+y dejes atrás ese mal segundo.
+
+[Chorus]
+Valeeeeeeeeenchuuuuuu!
+
+Aunque "La Masía" nos espera,
+con hamburgesas y alegría,
+más importante es que te encuentres fuera,
+de esta tristeza, con energía.
+
+Que te mejores!
+
+
+
+
+[Outro]
+Así que reposa y no te apures,
+pronto juntos disfrutaremos las aventuras,
+con sonrisas, risas que todo lo curan,
+Valeria, mejórate, que esperan días puros.
