@@ -335,3 +335,43 @@ Así que reposa y no te apures,
 pronto juntos disfrutaremos las aventuras,
 con sonrisas, risas que todo lo curan,
 Valeria, mejórate, que esperan días puros.
+
+
+# Bruno, el Tiger
+
+[Intro]
+Arranca a las 6 AM
+En el GYM SE FORTALECE
+Abre Instagram y su 
+CA-MA-RA SE PRENDE
+
+[Verse]
+Se saca una foto en el espejo
+Sin camisa, con su flow
+Y su estilo, todas las chicas
+Se mueren por Brunoooooo
+
+
+[Chorus]
+Bruno el Tiger, el rey de la selva
+En la disco se mueve como una pantera
+Con su flow y su estilo, todas las chicas se mueren
+Bruno el Tiger, el rey de la selva
+
+[Verse]
+Con su cadena de oro, reluciente al sol
+Sube a su jeep, con música a todo volumen
+Pasa por la ciudad, con su mirada fiera
+Todas quieren ser la presa de Bruno el Tiger
+
+[Chorus]
+Bruno el Tiger, el rey de la selva
+En la disco se mueve como una pantera
+Con su flow y su estilo, todas las chicas se mueren
+Bruno el Tiger, conquistador de la fiesta
+
+[Outro]
+La noche termina, pero él no descansa
+Sigue la fiesta en otra parte, con más ganas
+Bruno el Tiger, no necesita corona
+Porque la selva y la ciudad, ya saben quién manda
