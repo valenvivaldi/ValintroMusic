@@ -375,3 +375,40 @@ La noche termina, pero él no descansa
 Sigue la fiesta en otra parte, con más ganas
 Bruno el Tiger, no necesita corona
 Porque la selva y la ciudad, ya saben quién manda
+
+# Francho, el maestro
+[Intro]
+Francho, el maestro, el gran jugador,
+Francho-targorda, con todo el flow.
+Francho-tazo, siempre al mando,
+Francho-tavenosa, siempre innovando.
+
+[Verse 1]
+Es el gamer que domina en cada partida,
+Con su joystick va marcando la movida.
+Sabe de juegos, tiene la estrategia,
+Con Francho en el equipo, siempre hay épica.
+
+[Chorus]
+¡Francho! Francho-tazo, va a ganar,
+Francho-tavenosa, nadie lo va a parar.
+En la consola o en la vida real,
+Es el amigo que te lleva al final.
+
+[Verse 2]
+No importa si es shooter o un RPG,
+Francho siempre brilla, él sabe qué hacer.
+En cada torneo deja huella profunda,
+El rey de los gamers, su risa retumba.
+
+[Chorus]
+¡Francho! Francho-tazo, va a ganar,
+Francho-tavenosa, nadie lo va a parar.
+En la consola o en la vida real,
+Es el amigo que te lleva al final.
+
+[Chorus]
+¡Francho! Francho-tazo, va a ganar,
+Francho-tavenosa, nadie lo va a parar.
+Francho-targorda, siempre genial,
+Es nuestro héroe, nuestro inmortal.
